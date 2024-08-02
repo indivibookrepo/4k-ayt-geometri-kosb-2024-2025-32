@@ -1,0 +1,1 @@
+# 4k-ayt-geometri-kosb-2024-2025-32
